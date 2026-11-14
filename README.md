@@ -1,5 +1,5 @@
 <p  align="center">
-   meoowwww  (՞っ ̫ _՞)𓈒 𓂂𓏸
+   meoowwww  (՞っ ̫ _՞)𓈒 𓂂𓏸   |   c+h and int, w2i is freely!! mostly offtab ╥﹏╥
 </p>
 
 
